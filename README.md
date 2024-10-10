@@ -1,4 +1,4 @@
- ![](/assets/img/cabecera.png)
+ ![](/assets/img/cabecera2.png)
 ## Hola, soy Paloma Rivera 
 
 Soy Diseñadora Textil de formación, con experiencia en la industria textil como diseñadora y supervisora de producción. Mi carrera me ha permitido explorar distintas áreas creativas y de gestión, lo que ha enriquecido mi perfil multidisciplinario.
